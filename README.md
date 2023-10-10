@@ -30,4 +30,4 @@ discord server: (soon)
 Proof thats it me: image
 
 Contact
-if you want to contact me just dm me on twitter https://twitter.com/donuwu
+if you want to contact me just dm me on twitter https://twitter.com/doncuwu
